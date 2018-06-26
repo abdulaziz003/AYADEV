@@ -1,2 +1,3 @@
-# AYADEV
-here are our thoughts and ideas
+# بسم الله الرحمن الرحيم
+## AYADEV
+here are our thoughts and projects
