@@ -1,2 +1,2 @@
 # AYADEV
-here are our thoughts and ideas
+here are our thoughts and ideas. there will be good time.
